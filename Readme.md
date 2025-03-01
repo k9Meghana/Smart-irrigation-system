@@ -72,5 +72,3 @@ Tinkercad link:
     https://www.tinkercad.com/things/eAT0FfI0rx7-smart-irrigation-system
 
                                                       
-
-                      THANK YOU
